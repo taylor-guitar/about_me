@@ -32,7 +32,7 @@ Mein Ziel ist es, Unternehmen durch saubere Datenstrukturen und präzise Analyse
 
 ## 🤝 Let’s Connect
 
-📧 alkankerim@icloud.com 
+
 🔗 www.linkedin.com/in/kerimalkan
 🌐 
 
